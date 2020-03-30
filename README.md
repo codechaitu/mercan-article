@@ -25,4 +25,6 @@ The answer to my questions to live a satisfied and happy life in-and-out of offi
 
 
 
-These are not complete list of things, but following them really helped me.
+These are not complete list of things, but following them really helped me. 
+
+Note: This is a drat, will update regularly.
