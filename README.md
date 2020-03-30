@@ -23,7 +23,6 @@ The answer to my questions to live a satisfied and happy life in-and-out of offi
 	Planning what you're going to do the next day, will help in doing things better and organized.
 
 
-	
 
 
-
+These are not complete list of things, but following them really helped me.
