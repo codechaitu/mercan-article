@@ -1,5 +1,4 @@
-# mercan-article
-## Happiness ? Where can I get it ?
+# Happiness ? Where can I get it ?
 Before coming to Japan, sometimes without a reason I used to feel depressed. I couldn't understand why, this continued in my initial days even after joining Mercari. Somedays I used to be happy while working and somedays without any reason I used to be dull. I want to get away from this so that it can help my day-to-day work more better, I used to think myself; "Is there any shop where I could buy happiness ?"
 
 The answer to my questions to live a satisfied and happy life in-and-out of office came from many discussions with Japanese people and understanding few things from their life style. Today, I would like to share them with you all. The next 9 points really helped me alot.
